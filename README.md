@@ -1,2 +1,2 @@
 # ss-github
-This is for tutorial purpose.
+Ye Duniya chunautiyon se chutiyo se pareshan hai!! 
